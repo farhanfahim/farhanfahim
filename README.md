@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **developer.farhanfahim@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I believe every bug is an opportunity to learn. With each fix, I level up my skills!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
